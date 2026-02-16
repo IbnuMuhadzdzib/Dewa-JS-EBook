@@ -22,7 +22,7 @@ Materi mencakup:
 
 ## 👤 Author
 
-Ibnu  
+Ibnu Alif Muhadzdzib  
 Published: 2026
 
 ---
